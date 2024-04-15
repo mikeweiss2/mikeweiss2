@@ -1,5 +1,3 @@
 -  Whats up, I’m @mikeweiss2
--  I’m interested in escape from tarkov
 -  I’m currently learning all kinds of stuff
 -  Pronouns: He/him
-- ⚡ Fun fact: I love dogs
